@@ -14,6 +14,6 @@ Since then, I’ve been exploring different areas of cybersecurity, from hands-o
 ---
 
 ### Contacts
-📧 [Email](mailto:marco.sabbatini19@gmail.com)  
-💼 [LinkedIn](https://linkedin.com/in/marco-sabbatini-540749236)  
-📸 [Instagram](https://www.instagram.com/marcoosabbatini/)
+📧 [Email:&nbsp;&nbsp;&nbsp;&nbsp;marco.sabbatini19@gmail.com](mailto:marco.sabbatini19@gmail.com)  
+💼 [LinkedIn:&nbsp;&nbsp;&nbsp;&nbsp;Marco Sabbatini](https://linkedin.com/in/marco-sabbatini-540749236)  
+📸 [Instagram:&nbsp;&nbsp;&nbsp;&nbsp;marcoosabbatini](https://www.instagram.com/marcoosabbatini/)

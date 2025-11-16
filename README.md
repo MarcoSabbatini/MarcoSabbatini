@@ -1,7 +1,7 @@
 # Marco 👨🏻‍💻
 
 **Master’s Degree in Cybersecurity Engineering** at [Politecnico di Torino](https://www.polito.it/).  
-Curious by nature, eager to learn everything that revolves around cybersecurity — exploring every aspect and nuance of this field.
+Curious by nature, eager to learn everything that revolves around cybersecurity exploring every aspect and nuance of this field.
 
 ---
 
